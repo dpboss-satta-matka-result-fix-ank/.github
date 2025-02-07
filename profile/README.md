@@ -18,3 +18,47 @@
 ### - यहाँ देखें Fix👉👉 [कल्याण फाइनल अंक](https://kalyan-chart-fix.hindipanti.in/dpboss-satta-matka-result-1/) 👈👈
 
 ---
+
+## Dpboss Satta Matka Result LIVE
+
+- **MILAN MORNING**: 
+ - 899-6
+
+  - **SRIDEVI**: 
+ - Loading...
+ 
+- **MADHURI**: 
+ - Loading...
+
+- **PADMAVATHI**: 
+ - Loading...
+ 
+- **RAJDHANI MORNING [main]**:  
+- 670-3
+
+- **MADHUR MORNING**: 
+ - Loading...
+
+- **SRIDEVI [main]**: 
+ - Loading...
+
+- **ANDHRA MORNING**: 
+ - 579-1
+
+- **KALYAN SRIDEVI**: 
+ - 260-8
+  
+- **LOKSEVA DAY**: 
+ - Loading...
+
+- **MEENA MORNING**: 
+ - 457-6
+
+- **SRILAKSHMI**: 
+ - 224-8
+
+- **TULSI MORNING**: 
+ - 369-81-100
+
+- **WORLI MORNING**: 
+ - 467-7
